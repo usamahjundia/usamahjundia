@@ -1,16 +1,17 @@
-## Hi there 👋
+### We were born to pursue knowledge
+### For we were all born with nought
+### Before we were given a language
+### Out hands reach out, without being taught
 
-<!--
-**usamahjundia/usamahjundia** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+### All are to see, All are to know
+### We think. We uncover. We theorize.
+### The pursuers then throw themselves to the dark again.
 
-Here are some ideas to get you started:
+### But why, some say, the moon? 
+### Why choose this as our goal? 
+### And they may well ask,
+### why climb the highest mountain? 
+### Why, 35 years ago, fly the Atlantic? 
+### Why does Rice play Texas? 
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+## We choose to go to the moon!
