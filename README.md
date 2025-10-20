@@ -2,7 +2,7 @@
 ### We were born to pursue knowledge
 ### For we were all born with nought
 ### Before we were given a language
-### Out hands reach out, without being taught
+### Our hands reach out, without being taught
 
 ### All are to see, All are to know
 ### We think. We uncover. We theorize.
